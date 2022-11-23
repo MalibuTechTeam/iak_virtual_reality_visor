@@ -4,12 +4,12 @@
 
 ---
 
-Virtual reality visor
-
-
 ## Features
 
 - Custom clothing
 - Custom prop
 
+## DMCA Protection Certificate
+![image](https://cdn.discordapp.com/attachments/1045063739738705940/1045091904401973328/image.png)
 
+##### Copyright © 2022 Malibú Tech. All rights reserved.
